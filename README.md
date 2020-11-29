@@ -31,4 +31,4 @@ For those in position where they can do something to help the people tackle the 
 <br/>
 <br/>
 <br/>
-If you want more information, or want to share your opinion feel free to contact me 😊. 
+If you want more information, or want to share your opinion feel free to contact me 😊 
